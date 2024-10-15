@@ -1,4 +1,4 @@
-# outdoor-furniure
+# outdoor-furniture
 
 I've been incredibly impressed with the quality and durability of my Multiwood patio set. It's held up beautifully in the harsh Pakistani summers and winters. Highly recommended!
 
